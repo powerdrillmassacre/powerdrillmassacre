@@ -30,7 +30,10 @@ he ﾉ  him   . .  audhd ﹠ bpd   ₊  ‧
 </p>
 
 <p align="center">
-  𝘀𝗸𝗶𝗻𝘀 𝘆𝗼𝘂 𝘄𝗶𝗹𝗹 𝘀𝗲𝗲 𝗺𝗲 𝗶𝗻 !
+  always in the yt area sitting near bushes    .     feel free to always int if you have similar interests to me or just wanna sit with me !
+
+<p align="center">
+ 𝙨𝙠𝙞𝙣𝙨 𝙮𝙤𝙪 𝙬𝙞𝙡𝙡 𝙖𝙡𝙢𝙤𝙨𝙩 𝙖𝙡𝙬𝙖𝙮𝙨 𝙨𝙚𝙚 𝙢𝙚 𝙞𝙣
 </p>
 
 ![pony-town-🔪 , HUMAN-LIKE CRYPTID ◡ comf-laugh-padded-toy32-4x](https://github.com/powerdrillmassacre/nyonentry/assets/156819405/74739bd1-7358-4fc3-9a21-704692b4cf57)
