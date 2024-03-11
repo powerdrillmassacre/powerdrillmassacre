@@ -16,7 +16,7 @@
 ━╋━ leon   or   kris      ໒꒱ 
 
 <p align="center">
-he ﾉ  him   . .  audhd ﹠ bpd   ₊  ‧
+he ﾉ  him   . .  audhd ﹠ ebpd   ₊  ‧
 
 <p align="center">
 ◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
