@@ -1,12 +1,9 @@
 <p align="center">
-  <img width="660" height="10" src="https://github.com/powerdrillmassacre/nyonentry/assets/156819405/f376b5ce-4e9c-425b-aa18-70b83bc39df0">
-</p>
+  
 
 <p align="center">
-੭ৎ  i feel like im gonna go 𝘤𝘳𝘢𝘻𝘺 myself sooner or later. i might even already be 𝘤𝘳𝘢𝘻𝘺. who knows?
-</p>
-<p align="center">
-  <img width="560" height="500" src="https://github.com/powerdrillmassacre/nyonentry/assets/156819405/b3dfe429-3f68-407b-a729-0bdc2a14bc5c">
+
+  <img width="560" height="500" src="https://ranfren.neocities.org/gifs/cvyny050v2lf25ufo1vml3e00cpc.gif">
 </p>
 
 <p align="center">
@@ -25,9 +22,6 @@ he ﾉ  him   . .  audhd ﹠ bpd   ₊  ‧
 ◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡◡
 </p>
 
-<p align="center">
-  <img width="660" height="10" src="https://github.com/powerdrillmassacre/nyonentry/assets/156819405/f376b5ce-4e9c-425b-aa18-70b83bc39df0">
-</p>
 
 <p align="center">
   always in the yt area sitting near bushes    .     feel free to always int if you have similar interests to me or just wanna sit with me !
