@@ -3,7 +3,7 @@
 
 <p align="center">
 
-  <img width="560" height="500" src="https://ranfren.neocities.org/gifs/cvyny050v2lf25ufo1vml3e00cpc.gif">
+  <img width="980" height="400" src="https://media.discordapp.net/attachments/1030486233920581792/1219003996858224660/IMG_5752.jpg?ex=6609b8f0&is=65f743f0&hm=15b95070fba97bcea4a338d20c28da7e78a10c9ae0cc7eca7c614d6fe92352c5&=&format=webp&width=1440&height=480">
 </p>
 
 <p align="center">
